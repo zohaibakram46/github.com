@@ -9,6 +9,7 @@ The studio offers a wide range of hip hop classes, catering to all levels of dan
 
 **World-Class Instructors
 **
+
 One of the key highlights of Yashin Studio is its team of world-class instructors. These professionals are not only skilled dancers but also passionate educators committed to sharing their knowledge and love for hip hop. Many of the instructors have trained and performed internationally, bringing a wealth of experience and diverse influences to the studio.
 Classes at Yashin Studio are designed to be engaging and interactive, encouraging students to push their boundaries and express themselves. The instructors focus on technique, musicality, and performance, ensuring that students receive well-rounded training.
 
